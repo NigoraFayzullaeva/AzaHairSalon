@@ -1,1 +1,1 @@
-# AzaHairSalo. 
+# AzaHairSalon
